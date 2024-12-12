@@ -1,4 +1,4 @@
-# 最新ChatGPT Plus开通指南：如何通过国内支付宝购买ChatGPT Plus账号？注册并体验Sora生成的视频
+# 最新ChatGPT Plus和Sora注册开通指南：如何通过国内支付宝购买ChatGPT Plus账号？注册并体验Sora生成的视频
 
 <p align="center">更新日期：2024年12月12日</p>
 
